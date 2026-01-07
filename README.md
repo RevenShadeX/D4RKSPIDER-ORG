@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on loyal one
 - 📫 How to reach me +94788303001
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: virgin
+- ⚡ Fun fact: alone
 
 <!---
 D4RKSPIDER-ORG/D4RKSPIDER-ORG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
