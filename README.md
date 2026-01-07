@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @D4RKSPIDER-ORG
 - 👀 I’m interested in money
-- 🌱 I’m currently learning highschool second year
-- 💞️ I’m looking to collaborate on loyal one
+- 🌱 I’m currently learning highschool last year
+- 💞️ taken
 - 📫 How to reach me +94788303001
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: alone
