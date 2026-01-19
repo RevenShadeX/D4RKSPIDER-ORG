@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @D4RKSPIDER-ORG
 - 👀 I’m interested in money
 - 🌱 I’m currently learning highschool last year
-- 💞️ taken
-- 📫 How to reach me +94788303001
+- 
+- 📫 How to reach me +94788303001 (whatsapp only)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: alone
 
