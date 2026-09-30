@@ -2,7 +2,8 @@
 
 ### Developer • Python • Web • Discord & Minecraft • Cybersecurity
 
-I'm a self-taught developer from Sri Lanka who enjoys building practical software, automation tools, web projects, Discord bots, Minecraft plugins, and cybersecurity projects.
+I'm a self-taught developer from Sri Lanka who enjoys building practical software, automation tools, web projects, Discord bots, Minecraft plugins, and cybersecurity projects.i am a gray hat hacker too
+love to break systems and help people as much i can. currently searching for a job to start my career.
 
 I learn by building — from small experiments and CTFs to projects that can be deployed and used by other people.
 
